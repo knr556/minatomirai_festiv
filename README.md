@@ -1,1 +1,0 @@
-# minatomirai_festiv
